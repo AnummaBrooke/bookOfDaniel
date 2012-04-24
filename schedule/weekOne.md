@@ -1,1 +1,1 @@
-Session One, January 31:8:00: Orientation to course.9:00: Orientation to Daniel.10:00: Exegesis, Visual Essays, and Digital Storytelling
+Session One, January 31:8:00: Orientation to course.  9:00: Orientation to Daniel.  10:00: Exegesis, Visual Essays, and Digital Storytelling

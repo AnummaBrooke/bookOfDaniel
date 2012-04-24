@@ -1,1 +1,1 @@
-Session Eight, March 20:Prepare: Collins, 27-59Dan 1-3Petersen, Norman R. "Literary Criticism in Biblical Studies."8:00: Presentation: Critical Issues in Dan 1-3.9:00: Presentation: Critical Issues in Dan 1-3.10:00: Activity
+**Session Eight, March 20:**  Prepare:  Collins, 27-59  Dan 1-3  Petersen, Norman R. "Literary Criticism in Biblical Studies."  8:00: Presentation: Critical Issues in Dan 1-3.  9:00: Presentation: Critical Issues in Dan 1-3.  10:00: Activity

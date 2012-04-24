@@ -1,1 +1,1 @@
-Session Nine, March 27:Drafts due.Prepare: Collins, 59-73Dan 4-68:00: Presentation: Critical Issues in Dan 4-6.9:00: Presentation: Critical Issues in Dan 4-6.10:00: Activity
+**Session Nine, March 27:**Drafts due.  Prepare:  Collins, 59-73  Dan 4-6  8:00: Presentation: Critical Issues in Dan 4-6.  9:00: Presentation: Critical Issues in Dan 4-6.  10:00: Activity

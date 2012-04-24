@@ -1,1 +1,1 @@
-Session Twelve, April 24:Final project due midnight, Friday evening, April 27. Prepare:Collins, 89-96Dan 98:00: Presentation: Critical Issues in Dan 9.9:00: Presentation: Critical Issues in Dan 9.10:00: Activity
+**Session Twelve, April 24:***Final project due midnight, Friday evening, April 27.* Prepare:  Collins, 89-96  Dan 9  8:00: Presentation: Critical Issues in Dan 9.  9:00: Presentation: Critical Issues in Dan 9.  10:00: Activity

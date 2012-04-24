@@ -1,1 +1,1 @@
-Session Eleven, April 17:Prepare:Collins, 83-89Dan 88:00: Presentation: Critical Issues in Dan 8.9:00: Presentation: Critical Issues in Dan 8.10:00: Activity
+**Session Eleven, April 17:**Prepare:  Collins, 83-89  Dan 8  8:00: Presentation: Critical Issues in Dan 8.  9:00: Presentation: Critical Issues in Dan 8.  10:00: Activity

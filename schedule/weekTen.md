@@ -1,1 +1,1 @@
-Session Ten, April 3Peer reviews of drafts due.Prepare:Collins, review 1-24; read 74-83Dan 78:00: Presentation: Critical Issues in Dan 7.9:00: Presentation: Critical Issues in Dan 7.10:00: Activity
+**Session Ten, April 3***Peer reviews of drafts due.*Prepare:  Collins, review 1-24; read 74-83  Dan 7  8:00: Presentation: Critical Issues in Dan 7.  9:00: Presentation: Critical Issues in Dan 7.  10:00: Activity

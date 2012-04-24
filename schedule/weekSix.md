@@ -1,1 +1,1 @@
-Session Six, March 6:Thesis statement with prospectus due.Prepare: Rimmon-Kenan, Chapter 9: The Text and its Reading.8:00: Presentation: "Speech representation" and Daniel9:00: Presentation: "The Text and its Reading" and Daniel10:00: Activity
+**Session Six, March 6:***Thesis statement with prospectus due.*Prepare:  Rimmon-Kenan, Chapter 9: The Text and its Reading.  8:00: Presentation: "Speech representation" and Daniel  9:00: Presentation: "The Text and its Reading" and Daniel  10:00: Activity

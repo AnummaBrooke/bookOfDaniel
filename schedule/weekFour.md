@@ -1,1 +1,1 @@
-Session Four, February 21:Peer review on research report due.Prepare: Rimmon-Kenan, Chapters 4-6: Text.8:00: Presentation: "Time" and Daniel9:00: Presentation: "Characterization" and Daniel10:00: Activity
+**Session Four, February 21:**Peer review on research report due.  Prepare:  Rimmon-Kenan, Chapters 4-6: Text.  8:00: Presentation: "Time" and Daniel  9:00: Presentation: "Characterization" and Daniel  10:00: Activity

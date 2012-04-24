@@ -1,1 +1,1 @@
-Session Five, February 28:Prepare: Rimmon-Kenan, Chapters 7-8: Narration.8:00: Presentation: "Focalization" and Daniel9:00: Presentation: "Levels and Voices" and Daniel10:00: Activity
+**Session Five, February 28:**Prepare:   Rimmon-Kenan, Chapters 7-8: Narration.  8:00: Presentation: "Focalization" and Daniel  9:00: Presentation: "Levels and Voices" and Daniel  10:00: Activity

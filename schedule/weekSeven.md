@@ -1,1 +1,1 @@
-Session Seven, March 13:Peer review on prospectuses due.Rimmon-Kenan, Chapters 10-11: Conclusion and Afterthoughts.8:00: Presentation: "Conclusion" and Daniel9:00: Presentation: "Afterthoughts" and Daniel10:00: Activity
+**Session Seven, March 13:***Peer review on prospectuses due.*Prepare:  Rimmon-Kenan, Chapters 10-11: Conclusion and Afterthoughts.  8:00: Presentation: "Conclusion" and Daniel  9:00: Presentation: "Afterthoughts" and Daniel  10:00: Activity
