@@ -1,0 +1,1 @@
+Session Three, February 14:Research report due.Prepare: Rimmon-Kenan, Chapters 2 and 3: Story.8:00: Presentation: "Events" and Daniel9:00: Presentation: "Characters" and Daniel10:00: Activity

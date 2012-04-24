@@ -1,0 +1,1 @@
+Session Two, February 7:Prepare: Read Daniel 1-12 (see Moodle)Read Rimmon-Kenan, "Introduction."Read Collins, 1-24View Daniel A and B (QuickTime)View 5by5 Back to Work 38 "Sorry, You Can't Have a Candle."If necessary, open Twitter account.8:00: Issues in "Story"9:00: Activity based on reading Daniel10:00: Activity
